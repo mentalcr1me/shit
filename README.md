@@ -1,2 +1,2 @@
-# shit
-read about me ⋆˙⟡
+⋆˙⟡. ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
+read about me. 
